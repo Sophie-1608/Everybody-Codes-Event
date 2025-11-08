@@ -1,1 +1,1 @@
-# Everybody-Codes-Event-2024
+# Everybody-Codes-Event
